@@ -7,8 +7,11 @@ my favourite fnf mod is probably sonic.exe, check that mod out.
 oh and uh socials of course.
 
 reddit: https://www.reddit.com/user/cheesedevreddit
+
 discord: zarl#6969
+
 twitter: https://twitter.com/zarlexperience
+
 youtube: https://www.youtube.com/channel/UCPEKvCsAC74qy7L1ZGZ9unA
 
 ok thats all bye
